@@ -15,7 +15,7 @@ Enhance athletic performance and recovery.
 Support mental clarity and reduce fatigue​
 ELEVATE YOUR WATER
 
-<h2><a href="https://get-hydrogenwaterbottle.com/v4">LEARN MORE</a></h2>
+<h2><a href="https://www.microroof.com/28Z2JG43/WZGC46K/">LEARN MORE</a></h2>
 ​
 SYNC THERAPY
 .
